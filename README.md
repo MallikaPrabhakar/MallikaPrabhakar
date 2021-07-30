@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 🙋‍♀️
 
 <!--
 **MallikaPrabhakar/MallikaPrabhakar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Just your next door college student  \
+CS undergrad
+- Pronouns: she/her 😄
+- Fun fact: Your skeleton is wet 💀
+- Hobbies: reading, anime and painting 🧑‍🎨
