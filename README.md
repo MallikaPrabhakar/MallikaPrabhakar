@@ -17,7 +17,7 @@ Just your next door college student! <br>
 CS undergrad 💻 <br>
 Pronouns: she/her 😄<br>
 Fun fact: Your skeleton is wet 💀<br>
-Hobbies: reading, watching anime and painting 🧑‍🎨<br>
+Hobbies: reading, painting, reading 🧑‍🎨<br>
 Open for interesting collabs!
 
 <H3>Let's Connect :coffee: </H3>
